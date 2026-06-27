@@ -23,4 +23,4 @@ Homophobes/Transphobes/Any Queer-Phobic based things, L0licons, Pr0shippers, D@r
 
 📚 Books :: Animal Farm, **Percy Jackson**, idk I don't really read books besides manga, sorry booktok girlies? 😓
 
-🎭 Youtubers :: wip ragh
+🎭 Youtubers :: **ItalianBach**, Chilling Scares, JayMoji, Jarvis Johnson, Max megas, **Kurtis Conner**, Mohammed Agbadi, Chad Chad (Not Really), Joshua Joshua, **Danny Gonzales**, FailBoat, Slimesccl, Duncanyounot, **CaseOh**, RAVON, Sugarrushsean, Not Even Emily, GregBroDudeMan, **Flamingo**, Haylo Hayley, **ahmedeylo**, Rebal D, MisoForgetful, PointCrow, **Jackdaw**, Jackson Feild, FunkyFrogBait, **Layze**, 247MrNiceGuy, **Drew Gooden**, Nirami, Film Cooper, **Matt Rose**, Farrell McGuire, Markiplier, Drama Kween, ViitaB12, Nikki Carreon, **Laughability**, AugustTheDuck, Muldered, Daniel Profeta, The Basement, theplumpcover, Qerello, The Queer Kiwi, **Lewis Hancox**, William Kitten, Ryan Beard Productions, **Pinely**, EdmondX, RayLikeSunshine, courtreeay, Oompaville, CoopNoop, **Temprist**, One Topic, Daniel Thrasher, Thumin, **Ryan Trahan**, SarrieBearrie, and some other old youtubers, but thats mostly it! 😼
