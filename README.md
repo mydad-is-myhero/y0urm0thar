@@ -15,7 +15,11 @@ Homophobes/Transphobes/Any Queer-Phobic based things, L0licons, Pr0shippers, D@r
 
 
 🎬 Anime/Manga :: The Promised Neverland, My Hero Academia, **Mob Psycho 100**, Assassination Classroom, Oshi No Ko, Beastars, Jojo's Bizarre Adventure, **Sakamoto Days**, Iruma-Kun, **One Punch Man**, Pokémon, Demon Slayer, **Saint Young Men**, and some others I can't think of rn! 🥺✌️
+
 🎮 Games :: **Red Dead Redemption 2**, Zelda, Splatoon 2-3, **Cat Quest**, Tomodachi Life, Mario, Minecraft, **Donkey Kong: Bananza**, Kirby, Hello Kitty:Island Adventure, **Katamari Damacy**, Pikmin, Story of the Seasons, **Pokémon**, Undertale, and some other niche games 🤷‍♂️
+
 🎬 Shows/Movies :: **Guardians of The Galaxy**, Gravity Falls, **ANYTHING** Studio Ghibli, **Spider-Noir**, Marvel, Star Wars, Steven Universe, **The Sheep Detectives**, Poirot, South Park, **Scott Pilgrim**, Coraline, Night at the Museum, **Sanrio**, ect.
+
 📚 Books :: Animal Farm, The Magic Treehouse, Dog Man, ect.
+
 🎭 Youtubers :: wip!!
