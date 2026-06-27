@@ -1,7 +1,11 @@
 # y0urm0thar
 Click on me to learn more abt me I think 🤔 
 
+<img width="646" height="61" alt="1000024705" src="https://github.com/user-attachments/assets/1905d46c-95dc-4a51-9bfb-55373a62c216" />
+
+
 <img width="540" height="304" alt="1000024702" src="https://github.com/user-attachments/assets/7c5560a7-433c-47d9-81eb-7ba401c0b5da" />
+
 
 
 # 🎧♪ Mimix is listening to... 
@@ -36,4 +40,4 @@ Homophobes/Transphobes/Any Queer-Phobic based things, L0licons, Pr0shippers, D@r
 
 
 # Thank you for visiting my page! 😽 Have a great day, and remember to be yourself!
-<img width="269" height="258" alt="1000022502" src="https://github.com/user-attachments/assets/ea0ec11d-27aa-4f62-94e3-b50279fd10bf" />
+<img width="1280" height="467" alt="1000024704" src="https://github.com/user-attachments/assets/453bbb79-b9a5-4b97-84dc-d1e3f68c36ab" />
