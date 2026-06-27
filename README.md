@@ -1,6 +1,9 @@
 # y0urm0thar
 Click on me to learn more abt me I think 🤔 
 
+<img width="540" height="304" alt="1000024702" src="https://github.com/user-attachments/assets/7c5560a7-433c-47d9-81eb-7ba401c0b5da" />
+
+
 # 🎧♪ Mimix is listening to... 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=315cttwg3mf5fgekryzg6yc4f5xu&cover_image=true&theme=default&show_offline=true&background_color=474747&interchange=true&profanity=false&bar_color=454545)](https://spotify-github-profile.kittinanx.com/api/view?uid=315cttwg3mf5fgekryzg6yc4f5xu&redirect=true)
 
