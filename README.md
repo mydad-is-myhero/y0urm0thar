@@ -38,6 +38,12 @@ Homophobes/Transphobes/Any Queer-Phobic based things, L0licons, Pr0shippers, D@r
 
 <img width="320" height="4" alt="1000024703" src="https://github.com/user-attachments/assets/2160e99d-daa5-4123-877a-c8f10753dd02" />
 
+**Extra Notes . . . So some more info about me!**
+
+
+I'm an extrovert almost 24/7, but sometimes if I get super upset or overstimulated, I become *very* dry and do not want to talk, I'm sorry if you are a victim to my dry texting, I promise it doesnt happen a lot!! 😿
+
+<img width="320" height="4" alt="1000024716" src="https://github.com/user-attachments/assets/5e77602e-6676-4c62-aca2-7fcb53f816f3" />
 
 # Thank you for visiting my page! 😽 Have a great day, and remember to be yourself!
 <img width="1280" height="467" alt="1000024704" src="https://github.com/user-attachments/assets/453bbb79-b9a5-4b97-84dc-d1e3f68c36ab" />
