@@ -1,5 +1,5 @@
 # y0urm0thar
-Click on me to learn more abt me I think 🤔 
+Click on this to learn more abt me!! 🫶
 
 <img width="646" height="61" alt="1000024705" src="https://github.com/user-attachments/assets/1905d46c-95dc-4a51-9bfb-55373a62c216" />
 
