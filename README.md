@@ -4,6 +4,18 @@ Click on me to learn more abt me I think 🤔
 # 🎧♪ Mimix is listening to... 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=315cttwg3mf5fgekryzg6yc4f5xu&cover_image=true&theme=default&show_offline=true&background_color=474747&interchange=true&profanity=false&bar_color=454545)](https://spotify-github-profile.kittinanx.com/api/view?uid=315cttwg3mf5fgekryzg6yc4f5xu&redirect=true)
 
-My DNI/INT is on my Patreon and Strawpage! I have very basic dni critera, and some of my websites don't have updated interest lists, and I'm too #lazy to fix them 😲
 
-Lalala I have a comically large lollipop and pinwheel hat I'm so whimsical >.<
+
+**DNI criteria . . . Very basic for me btw !! ♡**
+
+Homophobes/Transphobes/Any Queer-Phobic based things, L0licons, Pr0shippers, D@rkshippers, Yarichin Bitch Club fans, The Coffin of Andy and Leyley fans, Bkdk + Afomight + HawksDabi shippers, Vivsiepop supporters, MAGA, Republicans, Misogynists, and anything else that's problematic imo.
+
+
+**INT criteria . . . almost *every* fandom I'm interested in!**
+
+
+🎬 Anime/Manga :: The Promised Neverland, My Hero Academia, **Mob Psycho 100**, Assassination Classroom, Oshi No Ko, Beastars, Jojo's Bizarre Adventure, **Sakamoto Days**, Iruma-Kun, **One Punch Man**, Pokémon, Demon Slayer, **Saint Young Men**, and some others I can't think of rn! 🥺✌️
+🎮 Games :: **Red Dead Redemption 2**, Zelda, Splatoon 2-3, **Cat Quest**, Tomodachi Life, Mario, Minecraft, **Donkey Kong: Bananza**, Kirby, Hello Kitty:Island Adventure, **Katamari Damacy**, Pikmin, Story of the Seasons, **Pokémon**, Undertale, and some other niche games 🤷‍♂️
+🎬 Shows/Movies :: **Guardians of The Galaxy**, Gravity Falls, **ANYTHING** Studio Ghibli, **Spider-Noir**, Marvel, Star Wars, Steven Universe, **The Sheep Detectives**, Poirot, South Park, **Scott Pilgrim**, Coraline, Night at the Museum, **Sanrio**, ect.
+📚 Books :: Animal Farm, The Magic Treehouse, Dog Man, ect.
+🎭 Youtubers :: wip!!
