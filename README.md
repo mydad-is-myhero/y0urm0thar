@@ -1,18 +1,9 @@
-# y0urm0thar
-Click on this to learn more abt me!! 🫶
-
 <img width="646" height="61" alt="1000024705" src="https://github.com/user-attachments/assets/1905d46c-95dc-4a51-9bfb-55373a62c216" />
 
 
 <img width="540" height="304" alt="1000024702" src="https://github.com/user-attachments/assets/7c5560a7-433c-47d9-81eb-7ba401c0b5da" />
 
-
-
-# 🎧♪ Mimix is listening to... 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=315cttwg3mf5fgekryzg6yc4f5xu&cover_image=true&theme=default&show_offline=true&background_color=474747&interchange=true&profanity=false&bar_color=454545)](https://spotify-github-profile.kittinanx.com/api/view?uid=315cttwg3mf5fgekryzg6yc4f5xu&redirect=true)
-
-<img width="320" height="4" alt="1000024703" src="https://github.com/user-attachments/assets/d65de1a0-56ab-4705-8f9c-df0f22b84624" />
-
+# Info !
 
 **DNI criteria . . . Very basic for me btw !! ♡**
 
