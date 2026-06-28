@@ -34,6 +34,8 @@ Homophobes/Transphobes/Any Queer-Phobic based things, L0licons, Pr0shippers, D@r
 
 I'm an extrovert almost 24/7, but sometimes if I get super upset or overstimulated, I become *very* dry and do not want to talk, I'm sorry if you are a victim to my dry texting, I promise it doesnt happen a lot!! 😿
 
+IF YOU SEE ME ON PONYTOWN, **PLEASE PLEASE PLEASE** INTERACT, I NEED NEW FRIENDS SOOOO BAD! 😾
+
 <img width="320" height="4" alt="1000024716" src="https://github.com/user-attachments/assets/5e77602e-6676-4c62-aca2-7fcb53f816f3" />
 
 # Thank you for visiting my page! 😽 Have a great day, and remember to be yourself!
