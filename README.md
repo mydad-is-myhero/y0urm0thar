@@ -38,5 +38,6 @@ Elton John, Fox Szn, **Her's**, 3Drinks, Jack Stauber, Joe Hisaishi, Khalid, Mic
 
 <img width="1212" height="80" alt="1000026302" src="https://github.com/user-attachments/assets/56ccb2ba-a8e5-4b5a-8381-ec63325303e0" />
 
-# flags!
-wippuh
+
+# <img width="123" height="35" alt="1000026319" src="https://github.com/user-attachments/assets/79156988-31d1-4f6d-995b-82d557ffb243" />
+If you couldn't tell by my DNI Criteria, I am part of the LGBTQIA+ community!
