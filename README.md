@@ -28,7 +28,7 @@ I am open to **all** people interacting with me, but ***ESPECIALLY*** people who
 **Guardians of The Galaxy**, Gravity Falls, ANYTHING Studio Ghibli, **Spider-Noir**, ***SOME*** Marvel, Star Wars, Steven Universe, **The Sheep Detectives**, Poirot, **South Park**, Scott Pilgrim, Coraline, Night at the Museum, Sanrio, **Bob's Burgers**, ect. <img width="20" height="20" alt="1000026315" src="https://github.com/user-attachments/assets/85804bb0-edf7-4fdd-8650-22e25e01ec38" />
 
 ### Books ::
-textytexty
+Animal Farm, **Percy Jackson**, Holes, I don't really read many books besides manga, sorry!
 ### Music Artists ::
 textytexty
 ### Games ::
