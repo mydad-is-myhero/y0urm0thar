@@ -25,7 +25,7 @@ I am open to **all** people interacting with me, but ***ESPECIALLY*** people who
 ### Anime/Manga ::
 **The Promised Neverland**, My Hero Academia, **Mob Psycho 100**, Assassination Classroom, Oshi No Ko, Beastars, Jojo's Bizarre Adventure, **Sakamoto Days**, Iruma-Kun, **One Punch Man**, Pokémon, Demon Slayer, Saint Young Men, and some others! <img width="20" height="20" alt="1000026312" src="https://github.com/user-attachments/assets/fb15483d-9a31-43ef-a127-e0da188343d7" />
 ### Shows/Movies ::
-textytexty
+**Guardians of The Galaxy**, Gravity Falls, ANYTHING Studio Ghibli, **Spider-Noir**, ***SOME*** Marvel, Star Wars, Steven Universe, **The Sheep Detectives**, Poirot, **South Park**, Scott Pilgrim, Coraline, Night at the Museum, Sanrio, Bob's Burgers, ect.
 ### Books ::
 textytexty
 ### Music Artists ::
