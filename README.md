@@ -12,7 +12,7 @@ Sooo, let's start off with the basics! ![1000026289](https://github.com/user-att
 # <img width="273" height="29" alt="1000026304" src="https://github.com/user-attachments/assets/49d671c0-521d-4096-afcb-5d3016623595" />
 
 ### HEAVY DNI . literally don't talk to me, stay far away!
-MAGA, Transphobes/Homophobes/Queerphobics, Fascists, Racists, N@zis, some others I cant think of.
+MAGA, Transphobes/Homophobes/Queerphobics, Fascists, Racists, N@zis, Confederate supporters, Predators/MAPs, Pr0shippers, ect.
 #### THIN ICE DNI . You can talk to me, but be SUPER careful!
 textytexty
 
