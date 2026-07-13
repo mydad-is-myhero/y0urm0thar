@@ -37,3 +37,6 @@ Elton John, Fox Szn, **Her's**, 3Drinks, Jack Stauber, Joe Hisaishi, Khalid, Mic
 
 
 <img width="1212" height="80" alt="1000026302" src="https://github.com/user-attachments/assets/56ccb2ba-a8e5-4b5a-8381-ec63325303e0" />
+
+# flags!
+wippuh
