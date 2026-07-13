@@ -75,3 +75,7 @@ And my birthday is May 12th, so I have the same birthday as Mob / Shigeo! <img w
 
 
 <img width="1212" height="80" alt="1000026302" src="https://github.com/user-attachments/assets/56ccb2ba-a8e5-4b5a-8381-ec63325303e0" />
+
+m/w amber . . !
+<img width="112" height="18" alt="1000026254" src="https://github.com/user-attachments/assets/bd21ec61-c80d-44ea-98c0-e35647efae64" />
+
