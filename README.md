@@ -69,3 +69,4 @@ My favorite color is **ALL** shades of green, but ***especially*** forest green 
 And my birthday is May 12th, so I have the same birthday as Mob / Shigeo! <img width="20" height="20" alt="1000026326" src="https://github.com/user-attachments/assets/171b89b7-bf31-4998-ac8a-8d98ffc02a7b" />
 
 
+<img width="1212" height="80" alt="1000026302" src="https://github.com/user-attachments/assets/56ccb2ba-a8e5-4b5a-8381-ec63325303e0" />
