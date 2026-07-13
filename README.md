@@ -65,4 +65,7 @@ I am a **BISEXUAL LESBIAN** so, I am basically bi with a HIGH HIGH **HIGH** pref
 I do **NOT** really like being covered, I only will **allow** being covered if it's just my body, and not my face! I like seeing my ponies' pretty little faces, so I'd love it if you didn't cover my face, but otherwise, you can cover / cuddle / hug me!! <img width="20" height="20" alt="1000026324" src="https://github.com/user-attachments/assets/4fc7589e-b950-4e1e-9ffe-f471bb1783ba" />
 
 My favorite foods are Manicotti and Empanadas! <img width="20" height="20" alt="1000026306" src="https://github.com/user-attachments/assets/3484f9a6-e044-41c1-90a0-f762954f8c0a" />
-And my favorite color is **ALL** shades of green, but ***especially*** forest green and pastel greens!
+And my favorite color is **ALL** shades of green, but ***especially*** forest green and pastel greens! <img width="20" height="20" alt="1000026325" src="https://github.com/user-attachments/assets/610f9490-b79a-443a-bb1a-d5b57ee506c7" />
+My birthday is May 12th, so I have the same birthday as Mob / Shigeo! <img width="20" height="20" alt="1000026326" src="https://github.com/user-attachments/assets/171b89b7-bf31-4998-ac8a-8d98ffc02a7b" />
+
+
