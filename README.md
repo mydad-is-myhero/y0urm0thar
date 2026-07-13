@@ -22,11 +22,11 @@ The Coffin of Andey and Leyley fans, Ybc fans, The Freak Circus fans, ***THOSE**
 
 I am open to **all** people interacting with me, but ***ESPECIALLY*** people who are in my fandoms, so, here's my fandom list! <img width="20" height="20" alt="1000026310" src="https://github.com/user-attachments/assets/51574a73-094e-4ff3-9b4f-1c073aed1628" />
 
-## Anime/Manga
+### Anime/Manga
 textytexty
-## Shows/Movies
+### Shows/Movies
 textytexty
-## Books
+### Books
 textytexty
-## Music Artists
+### Music Artists
 textytexty
