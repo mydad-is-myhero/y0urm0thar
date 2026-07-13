@@ -44,10 +44,18 @@ If you couldn't tell by my DNI Criteria, I am part of the LGBTQIA+ community! So
 
 ### 1 :: Genderfluid
 <img width="330" height="198" alt="1000026322" src="https://github.com/user-attachments/assets/a2db642e-9e70-47d5-a6d0-0c0ff92ca224" />
+
 I'm genderfluid, so personally, I use he/him or she/her pronouns, it just depends on the day! If you want to learn more about my names / pronouns, check out my prns.cc! I do not care which pronouns you use for me, but my name should change depending on the pronouns!
+
 ### 2 :: Lesbian
 <img width="330" height="198" alt="1000026320" src="https://github.com/user-attachments/assets/a999e8f9-7be3-4f6d-8cd8-fa7d5b9b550e" />
+
 Idk, I kiss girls.
+
 ### 3 :: Bisexual
 <img width="330" height="198" alt="1000026321" src="https://github.com/user-attachments/assets/8f5a0183-4484-4921-9edd-e66dcc090e40" />
-I am a **BISEXUAL LESBIAN** so, I am basically bi with a HIGH HIGH **HIGH** prefrence for girls, like 99.99% girls and 0.01% boys! I'm pretty sure there was a video I watched that awoken me to becoming a bi-lesbian, but I can't remember or find the link, sadly!
+
+I am a **BISEXUAL LESBIAN** so, I am basically bi with a HIGH HIGH **HIGH** prefrence for girls, like 99.99% girls and 0.01% boys! I'm pretty sure there was a video I watched that awoken me to becoming a bi-lesbian, but I can't remember or find the link, sadly! <img width="20" height="20" alt="1000026323" src="https://github.com/user-attachments/assets/4033c22d-6e61-47af-bc89-d718fa032047" />
+
+
+<img width="1212" height="80" alt="1000026302" src="https://github.com/user-attachments/assets/56ccb2ba-a8e5-4b5a-8381-ec63325303e0" />
