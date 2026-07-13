@@ -16,9 +16,17 @@ Sooo, let's start off with the basics! ![1000026289](https://github.com/user-att
 MAGA, Transphobes/Homophobes/Queerphobics, Fascists, Racists, N@zis, Confederate supporters, Predators/MAPs, Pr0shippers, L0licons, D@rkshippers, Meowbahh supporters, ect.
 #### THIN ICE DNI . You can talk to me, but be SUPER careful! <img width="20" height="20" alt="1000026311" src="https://github.com/user-attachments/assets/5a9fa38b-8351-4961-97a8-8c74d13f3dc8" />
 
-The Coffin of Andey and Leyley fans, Ybc fans, The Freak Circus fans, Pixeldrink supporters, BkDk shippers, AfoMight shippers, Kacchako shippers, HawksDabi shippers, basically ***most*** of the MHA fandom.
+The Coffin of Andey and Leyley fans, Ybc fans, The Freak Circus fans, ***THOSE*** Christians, Pixeldrink supporters, BkDk shippers, AfoMight shippers, Kacchako shippers, HawksDabi shippers, basically ***most*** of the MHA fandom.
 
 # <img width="267" height="29" alt="1000026303" src="https://github.com/user-attachments/assets/351665d5-f7fb-4c9c-896c-ddc3718fbf5c" />
 
 I am open to **all** people interacting with me, but ***ESPECIALLY*** people who are in my fandoms, so, here's my fandom list! <img width="20" height="20" alt="1000026310" src="https://github.com/user-attachments/assets/51574a73-094e-4ff3-9b4f-1c073aed1628" />
 
+## Anime/Manga
+textytexty
+## Shows/Movies
+textytexty
+## Books
+textytexty
+## Music Artists
+textytexty
