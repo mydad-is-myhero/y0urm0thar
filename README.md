@@ -11,7 +11,10 @@ Sooo, let's start off with the basics! ![1000026289](https://github.com/user-att
 
 # <img width="273" height="29" alt="1000026304" src="https://github.com/user-attachments/assets/49d671c0-521d-4096-afcb-5d3016623595" />
 
-
+### HEAVY DNI . literally don't talk to me, stay far away!
+textytexty
+#### THIN ICE DNI . You can talk to me, but be SUPER careful!
+textytexty
 
 # <img width="267" height="29" alt="1000026303" src="https://github.com/user-attachments/assets/351665d5-f7fb-4c9c-896c-ddc3718fbf5c" />
 
