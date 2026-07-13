@@ -6,3 +6,10 @@ Hi, hello, hey!! ![1000026287](https://github.com/user-attachments/assets/52501e
 I'm Maddie / Flynn / Mimix, and this ReadMe is all about **ME**! ![1000026288](https://github.com/user-attachments/assets/4f969590-2814-4b89-b079-9b531ee0e823)
 
 Sooo, let's start off with the basics! ![1000026289](https://github.com/user-attachments/assets/53b35304-de61-4e09-8d4c-7dd4d5851d46)
+
+![1000026301](https://github.com/user-attachments/assets/6587c52f-b49f-4383-8efe-afda89270a38)
+
+# INT Criteria!
+
+
+# DNI Criteria!
