@@ -29,7 +29,8 @@ I am open to **all** people interacting with me, but ***ESPECIALLY*** people who
 ### Books ::
 Animal Farm, **Percy Jackson**, Holes, I don't really read many books besides manga, sorry! <img width="20" height="20" alt="1000026316" src="https://github.com/user-attachments/assets/b69f43a3-abfe-4d08-ac6d-cdef5c83ba81" />
 ### Music Artists ::
-Elton John, Fox Szn, **Her's**, 3Drinks, Jack Stauber, Joe Hisaishi, Khalid, Michael Jackson, MOB CHOIR, Hamilton, Pharrell Williams, **Eminem**, The Caretaker, Weezer, Tyler the Creator, The Weeknd, **The Beatles**, Fall Out Boy, Cat Stevens, **YOASOBI**, and Self!
+Elton John, Fox Szn, **Her's**, 3Drinks, Jack Stauber, Joe Hisaishi, Khalid, Michael Jackson, MOB CHOIR, Hamilton, Pharrell Williams, **Eminem**, The Caretaker, Weezer, Tyler the Creator, The Weeknd, **The Beatles**, Fall Out Boy, Cat Stevens, **YOASOBI**, and Self! <img width="20" height="20" alt="1000026317" src="https://github.com/user-attachments/assets/8792046c-7f7b-4457-ac42-e41753c3fa42" />
+
 ### Games ::
 **Red Dead Redemption 2**, Zelda, **Splatoon 2-3**, Cat Quest, Tomodachi Life, Mario, Minecraft, Donkey Kong: Bananza, Kirby, Hello Kitty:Island Adventure, **Katamari Damacy**, Pikmin, Story of the Seasons, **Pokémon**, Undertale, Ori:and the Will of the Wisps, and some other niche unknown games that don't need naming! <img width="20" height="20" alt="1000026314" src="https://github.com/user-attachments/assets/5115201f-1fb8-4878-8ce4-a43792c7435d" />
 ### Youtubers ::
