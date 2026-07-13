@@ -12,9 +12,9 @@ Sooo, let's start off with the basics! ![1000026289](https://github.com/user-att
 # <img width="273" height="29" alt="1000026304" src="https://github.com/user-attachments/assets/49d671c0-521d-4096-afcb-5d3016623595" />
 
 ### HEAVY DNI . literally don't talk to me, stay far away!
-MAGA, Transphobes/Homophobes/Queerphobics, Fascists, Racists, N@zis, Confederate supporters, Predators/MAPs, Pr0shippers, ect.
+MAGA, Transphobes/Homophobes/Queerphobics, Fascists, Racists, N@zis, Confederate supporters, Predators/MAPs, Pr0shippers, L0licons, D@rkshippers, Meowbahh supporters, ect.
 #### THIN ICE DNI . You can talk to me, but be SUPER careful!
-textytexty
+The Coffin of Andey and Leyley fans, Ybc fans, The Freak Circus fans, Pixeldrink supporters, BkDk shippers, AfoMight shippers, Kacchako shippers, HawksDabi shippers, basically ***most*** of the MHA fandom.
 
 # <img width="267" height="29" alt="1000026303" src="https://github.com/user-attachments/assets/351665d5-f7fb-4c9c-896c-ddc3718fbf5c" />
 
