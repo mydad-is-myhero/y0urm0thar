@@ -50,4 +50,4 @@ I'm genderfluid, so personally, I use he/him or she/her pronouns, it just depend
 Idk, I kiss girls.
 ### 3 :: Bisexual
 <img width="330" height="198" alt="1000026321" src="https://github.com/user-attachments/assets/8f5a0183-4484-4921-9edd-e66dcc090e40" />
-I am a **BISEXUAL LESBIAN** so, I am basically bi with a HIGH HIGH **HIGH** prefrence for girls, like 99.99% girls and 0.01% boys!
+I am a **BISEXUAL LESBIAN** so, I am basically bi with a HIGH HIGH **HIGH** prefrence for girls, like 99.99% girls and 0.01% boys! I'm pretty sure there was a video I watched that awoken me to becoming a bi-lesbian, but I can't remember or find the link, sadly!
