@@ -76,6 +76,5 @@ And my birthday is May 12th, so I have the same birthday as Mob / Shigeo! <img w
 
 <img width="1212" height="80" alt="1000026302" src="https://github.com/user-attachments/assets/56ccb2ba-a8e5-4b5a-8381-ec63325303e0" />
 
-<img width="162" height="38" alt="1000026254" src="https://github.com/user-attachments/assets/bd21ec61-c80d-44ea-98c0-e35647efae64" />
-m/w https://github.com/iwanttoholdyourhand . . !
-
+<img width="162" height="28" alt="1000026254" src="https://github.com/user-attachments/assets/bd21ec61-c80d-44ea-98c0-e35647efae64" />
+m/w https://github.com/iwanttoholdyourhand . . ! <img width="20" height="20" alt="1000026328" src="https://github.com/user-attachments/assets/4cb70c88-c3aa-4e73-83e6-1a71b9490ad3" />
