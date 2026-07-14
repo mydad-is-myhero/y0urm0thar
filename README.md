@@ -63,7 +63,8 @@ I am a **BISEXUAL LESBIAN** so, I am basically bi with a HIGH HIGH **HIGH** pref
 # <img width="177" height="38" alt="1000026327" src="https://github.com/user-attachments/assets/5a28ebc9-39ff-45c2-821b-3e6a5aa65c15" />
 ### #1 . Shigeo Kageyama aka " Mob " - Mob Psycho 100
 
-Reasoning ; Mob has very bas social anxiety imo, just like me! He also seems like very good autstic rep, which very much resonates with me *SO* much 🥹 ! I also have the same birthday as him so that's another reason why I love him so much !! (#´ω｀#)
+Reasoning ; Mob has very bas social anxiety imo, just like me! He also seems like very good autstic rep, which very much resonates with me *SO* much <img width="20" height="20" alt="1000026334" src="https://github.com/user-attachments/assets/695e3716-4a74-46a0-a73f-9db320d2a383" />
+ ! I also have the same birthday as him so that's another reason why I love him so much !! (#´ω｀#)
 
 
 ### #2 . Kaji Joichirou - Sakamoto Days
@@ -86,7 +87,8 @@ Reasoning ; Me and All Might have a lot in common, like how we're both blonde w/
 
 ### #5 . Emma - The Promised Neverland
 
-Reasoning ; Emma is a very kind and caring person, and always trying to put others first before her ! I resonate with that deeply, since I'm a people pleaser, and am always trying to make people happy 😓 and also she's like super awesome or wtv it's not even that interesting... <img width="20" height="20" alt="1000026329" src="https://github.com/user-attachments/assets/4520a7aa-c19a-4108-8dc6-7bce1cff5d7f" />
+Reasoning ; Emma is a very kind and caring person, and always trying to put others first before her ! I resonate with that deeply, since I'm a people pleaser, and am always trying to make people happy <img width="20" height="20" alt="1000026333" src="https://github.com/user-attachments/assets/7416f24d-c335-47f8-95ef-b6ff6979859e" />
+ and also she's like super awesome or wtv it's not even that interesting... <img width="20" height="20" alt="1000026329" src="https://github.com/user-attachments/assets/4520a7aa-c19a-4108-8dc6-7bce1cff5d7f" />
 
 
 
