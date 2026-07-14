@@ -88,6 +88,7 @@ Reasoning ; Garou, as seen in some of what we get to see in his backstory in the
 
 Reasoning ; Me and All Might have a lot in common, like how we're both blonde w/ blue eyes 👀 . . . But also, he was my 1st kin! He has a very cool character design / backstory, and that was why I was interested in him! <img width="20" height="20" alt="1000026330" src="https://github.com/user-attachments/assets/df8ff022-24f9-4588-a31b-541447a19f2b" />
 
+<img width="190" height="190" alt="1000026338" src="https://github.com/user-attachments/assets/dc163db3-af0f-455b-8e2e-4aebfe696fd4" />
 
 
 ### #5 . Emma - The Promised Neverland
