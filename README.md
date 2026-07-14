@@ -68,7 +68,8 @@ Reasoning ; Mob has very bas social anxiety imo, just like me! He also seems lik
 
 ### #2 . Kaji Joichirou - Sakamoto Days
 
-Reasoning ; Kaji also has very bad social anxiety, and also has very high hearing! I, too, have those . . . (ú-ù) Kaji's deisgn is also very cool to me, so that's why I'm very drawn to him !! 😽
+Reasoning ; Kaji also has very bad social anxiety, and also has very high hearing! I, too, have those . . . (ú-ù) Kaji's deisgn is also very cool to me, so that's why I'm very drawn to him !! <img width="20" height="20" alt="1000026331" src="https://github.com/user-attachments/assets/1d47c30e-324b-45b1-b75a-06d6611a01a3" />
+
 
 
 ### #3 . Garou - One punch Man
