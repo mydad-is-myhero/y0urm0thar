@@ -61,7 +61,30 @@ I am a **BISEXUAL LESBIAN** so, I am basically bi with a HIGH HIGH **HIGH** pref
 <img width="1212" height="80" alt="1000026302" src="https://github.com/user-attachments/assets/56ccb2ba-a8e5-4b5a-8381-ec63325303e0" />
 
 # <img width="177" height="38" alt="1000026327" src="https://github.com/user-attachments/assets/5a28ebc9-39ff-45c2-821b-3e6a5aa65c15" />
-wippp
+### #1 . Shigeo Kageyama aka " Mob " - Mob Psycho 100
+
+Reasoning ; Mob has very bas social anxiety imo, just like me! He also seems like very good autstic rep, which very much resonates with me *SO* much 🥹 ! I also have the same birthday as him so that's another reason why I love him so much !! (#´ω｀#)
+
+
+### #2 . Kaji Joichirou - Sakamoto Days
+
+Reasoning ; Kaji also has very bad social anxiety, and also has very high hearing! I, too, have those . . . (ú-ù) Kaji's deisgn is also very cool to me, so that's why I'm very drawn to him !! 😽
+
+
+### #3 . Garou - One punch Man
+
+Reasoning ; Garou, as seen in some of what we get to see in his backstory in the manga, was very much bullied, which is the reasoning for his whole villiany or "monsterization". I am also very much bullied, and also I just really like garou's design and how he is only kind to kids 😹 oh and metal bat ofc his beautiful boyfriend <(｀^´)>
+
+
+### #4 . Toshinori Yagi aka " All Might " - My Hero Academia
+
+Reasoning ; Me and All Might have a lot in common, like how we're both blonde w/ blue eyes 👀 . . . But also, he was my 1st kin! He has a very cool character design / backstory, and that was why I was interested in him! 🥳
+
+
+### #5 . Emma - The Promised Neverland
+
+Reasoning ; Emma is a very kind and caring person, and always trying to put others first before her ! I resonate with that deeply, since I'm a people pleaser, and am always trying to make people happy 😓 and also she's like super awesome or wtv it's not even that interesting... 🥺
+
 
 <img width="1212" height="80" alt="1000026302" src="https://github.com/user-attachments/assets/56ccb2ba-a8e5-4b5a-8381-ec63325303e0" />
 
