@@ -120,6 +120,7 @@ m/w https://github.com/iwanttoholdyourhand . . ! <img width="20" height="20" alt
 <img width="1212" height="80" alt="1000026302" src="https://github.com/user-attachments/assets/56ccb2ba-a8e5-4b5a-8381-ec63325303e0" />
 
 # <img width="429" height="35" alt="1000026342" src="https://github.com/user-attachments/assets/80c21c96-58ff-4762-be69-3c8b38d3a61c" />
-Thank you for visiting, have a great day and stay positive!
+Thank you for visiting, have a great day and stay positive! ![1000026344](https://github.com/user-attachments/assets/726e479c-a534-4f60-b996-13ac364b55f8)
+
 
 ![1000026343](https://github.com/user-attachments/assets/6c0751a7-f12e-43e6-ad2c-9f1687142b2e)
