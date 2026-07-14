@@ -74,7 +74,8 @@ Reasoning ; Kaji also has very bad social anxiety, and also has very high hearin
 
 ### #3 . Garou - One punch Man
 
-Reasoning ; Garou, as seen in some of what we get to see in his backstory in the manga, was very much bullied, which is the reasoning for his whole villiany or "monsterization". I am also very much bullied, and also I just really like garou's design and how he is only kind to kids 😹 oh and metal bat ofc his beautiful boyfriend <(｀^´)>
+Reasoning ; Garou, as seen in some of what we get to see in his backstory in the manga, was very much bullied, which is the reasoning for his whole villiany or "monsterization". I am also very much bullied, and also I just really like garou's design and how he is only kind to kids <img width="20" height="20" alt="1000026332" src="https://github.com/user-attachments/assets/f5c86f37-e812-479b-8512-8a3b55e56a03" />
+ oh and metal bat ofc his beautiful boyfriend <(｀^´)>
 
 
 ### #4 . Toshinori Yagi aka " All Might " - My Hero Academia
