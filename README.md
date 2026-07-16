@@ -63,7 +63,7 @@ I am a **BISEXUAL LESBIAN** so, I am basically bi with a HIGH HIGH **HIGH** pref
 # <img width="177" height="38" alt="1000026327" src="https://github.com/user-attachments/assets/5a28ebc9-39ff-45c2-821b-3e6a5aa65c15" />
 ### #1 . Shigeo Kageyama aka " Mob " - Mob Psycho 100
 
-Reasoning ; Mob has very bas social anxiety imo, just like me! He also seems like very good autstic rep, which very much resonates with me *SO* much <img width="20" height="20" alt="1000026334" src="https://github.com/user-attachments/assets/695e3716-4a74-46a0-a73f-9db320d2a383" />
+Reasoning ; Mob has very bad social anxiety imo, just like me! He also seems like very good autstic rep, which very much resonates with me *SO* much <img width="20" height="20" alt="1000026334" src="https://github.com/user-attachments/assets/695e3716-4a74-46a0-a73f-9db320d2a383" />
  ! I also have the same birthday as him so that's another reason why I love him so much !! (#´ω｀#)
 
 <img width="150" height="190" alt="1000026335" src="https://github.com/user-attachments/assets/f42c7c91-c02f-464a-a662-b65c7a3d07eb" />
